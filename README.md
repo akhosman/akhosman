@@ -1,4 +1,4 @@
 ### Hi there 👋 I'm Amanda
 
-![Data ScienceML Engineering](https://user-images.githubusercontent.com/90936973/138622830-851b4396-9642-4651-a57d-b5fdc61d375b.gif)
+![Data ScienceML Engineering (1)](https://user-images.githubusercontent.com/90936973/138631750-dc46cd4d-0cbb-40d5-bcae-9108b5277b8e.gif)
 
